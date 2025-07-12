@@ -36,4 +36,4 @@ This project is open source and free to use. Have fun and share it with friends!
 
 ---
 
-Made with ❤️ by [Your Name]
+Made with ❤️ by TheWRobloxDev [Arthur].
